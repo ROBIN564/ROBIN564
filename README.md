@@ -1,4 +1,4 @@
-### Hi there 👋, Hi, This is ROBIN
+### Hi there 👋 This is ROBIN
 #### A Professional Shopify Expert
 ![A Professional Shopify Expert](https://media-exp1.licdn.com/dms/image/C4E16AQHUvsri9VjlaQ/profile-displaybackgroundimage-shrink_350_1400/0/1647863236667?e=1658966400&v=beta&t=f2Dpoge2u6oimxtKOWAB0xcYb6L-eQRR66s-GXT4tU0)
 
